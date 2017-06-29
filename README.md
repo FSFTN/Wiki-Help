@@ -1,7 +1,7 @@
-Wiki-help-
+Wiki-Help
 ==========
 
-The documents  help in Wiki Sessions and gender Gap activities in Wiki 
+The documents help in Wiki Sessions and Gender Gap activities in Wiki 
 
 
 
